@@ -1,4 +1,4 @@
 ![Alt Text](download.jpeg)
-# we are alin
+# we are alien
 ## hahaha
 ### yes yes yes
